@@ -10,3 +10,11 @@ Next, an ex-MLA came on the stage, who shared his life experiences that how he b
 
 
 ## DAY 2  
+
+Second day at the institution started with settling down in the auditorium. Our first speaker of the day was Dr. Priya Darshni Mam who spoke on the topic "Universal Human Values". She while sharing very valuable knowledge also kept the lecture interesting which is not an easy task but she made it seem like a piece of cake. She interacted with students, heard student problems gave them solutions and also knowledge and guidance on how to get to the solution themselves. Overall it was a nice experience. 
+
+Other speaker of the day was Dr. Arvind Dhingra, he had a kind, energetic and interactive personality. He helped me shed my reserved behavior and start interacting with others. He asked for 6 boys and 6 girls to came on the stage and then the students played a game mainly focusing on thier coorddination and after that were treated with sweets. And after some more expert knowledge and wisdom filled words. He asked for another set of students and played another game. It was a mood lifting programme other than the fact it took all of the break time. 
+
+After the expert lectures, we had tests of english and maths. Which were conducted by seniors. The english test was easy and was completed by almost all under 40 mins. On the other hand students some  what struggled  with maths test. My test went good and it was a nice back on track experience. 
+
+## DAY 3 
